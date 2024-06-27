@@ -1,7 +1,7 @@
 OK9 - ĐỊA ĐIỂM CÁ CƯỢC ĐÁNG TIN CẬY NHẤT CHÂU Á - ok9.ninja
 ===================================
 
-"OK9 là một nhà cái cá cược trực tuyến được biết đến như một điểm đến lý tưởng cho cộng đồng yêu thích thể thao. Với giấy phép hoạt động từ Isle of Man và Khu Kinh Tế Cagayan and Freeport, OK9 cam kết cung cấp môi trường cá cược an toàn và công bằng. 
+`OK9 <https://ok9.ninja/>`_ là một nhà cái cá cược trực tuyến được biết đến như một điểm đến lý tưởng cho cộng đồng yêu thích thể thao. Với giấy phép hoạt động từ Isle of Man và Khu Kinh Tế Cagayan and Freeport, OK9 cam kết cung cấp môi trường cá cược an toàn và công bằng. 
 
 Với hơn 10 triệu cược thủ và các sảnh cá cược đa dạng như thể thao, casino trực tuyến, xổ số, game bài và nổ hũ, OK9 mang đến cho người chơi trải nghiệm giải trí đỉnh cao và đổi mới trong ngành cá cược trực tuyến tại Việt Nam.
 
